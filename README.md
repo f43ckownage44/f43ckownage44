@@ -1,3 +1,3 @@
 мама я интылыжык!1!1
 
-![изображение](https://github.com/user-attachments/assets/91be29c1-1879-48e2-a76c-e7fef7f60b5a)
+![изображение](https://github.com/user-attachments/assets/a69a54ac-875b-4e97-b0a4-d0085a1608d4)
